@@ -2,7 +2,7 @@
 
 奈飞工厂是一个专注于提供Netflix影视资源及原创内容制作的综合性平台，其核心定位是打破地域限制，为用户提供免费、高清的全球影视内容。该平台起源于对Netflix剧集的深度整合需求，通过与版权方合作及原创内容开发，构建了涵盖电影、电视剧、纪录片、综艺的多元化资源库。平台内容不仅覆盖好莱坞大片，还包含日本、韩国、法国、印度等地区的本土影视作品，满足用户跨文化观影需求。此外，奈飞工厂通过影视制作公司分支，参与原创剧集创作，其代表作品《暗夜追踪》《时空恋人》等悬疑、科幻题材剧集，凭借精良制作与国际化叙事风格，在全球190多个国家和地区播出，并斩获32项国际奖项，形成“资源整合+原创制作”的双轮驱动模式。
 
-<p><strong>一键访问：</strong><a href="https://www.rymdh.com/sites/14369.html" target="_blank" ><strong>奈飞工厂最新网址</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://netflixgc.2rdh.com/" target="_blank" ><strong>奈飞工厂最新网址</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://www.rymdh.com/favorites/yingshizaixiankan" target="_blank" ><strong>影视资源</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank" ><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 
